@@ -1,0 +1,2 @@
+# vany_privacy_policy
+vany_privacy_policy
